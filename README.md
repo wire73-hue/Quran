@@ -1,0 +1,2 @@
+# Quran
+Easy to access
